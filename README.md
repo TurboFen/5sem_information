@@ -10,6 +10,9 @@ https://us04web.zoom.us/j/8313898952?pwd=elFmV3hCdXJqSFFvR1FMNytZclhwdz09#succes
 РК https://yadi.sk/d/D93FUN__nvC5zg?w=1
 Курсач https://yadi.sk/d/T2RfyN233Ya26w?w=1#
 
+ССылка на комнату старшего Жукова
+https://webinar.bmstu.ru/html5client/join?sessionToken=tfiaoxlqlxy9w2fb
+
 Ссылка на диск с семинарами и лекциями Гордеева
 https://drive.google.com/drive/folders/1DwU1B4rxxUCX9LBWCXsMdVTAtFKpMXfp
 
