@@ -22,6 +22,7 @@ https://drive.google.com/drive/folders/1jKGBjPyEnu0U7ar1l1GfIS3Nhujh-8Ws
 Контакты преподавателей
 Номер Пристанского - +79039683508
 Почта философы - Sgn-42019@yandex.ru
+Почта философы бауманская - sgn-gnu@bmstu.ru
 Почта Гордеева - werhorngord@gmail.com
 
 Ссылка на записи Егора
