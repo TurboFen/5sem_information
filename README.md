@@ -16,6 +16,9 @@ https://webinar.bmstu.ru/html5client/join?sessionToken=tfiaoxlqlxy9w2fb
 Ссылка на диск с семинарами и лекциями Гордеева
 https://drive.google.com/drive/folders/1DwU1B4rxxUCX9LBWCXsMdVTAtFKpMXfp
 
+Ссылка на еще один диск с семинарами и лекциями Гордеева (туда он публикует лекции лекции с ноября)
+https://drive.google.com/drive/folders/1VPT8r7h8aJPz9CEgPzCW4v7d1TRTyxCK
+
 ССылка на лабы ЗПиД
 https://drive.google.com/drive/folders/1jKGBjPyEnu0U7ar1l1GfIS3Nhujh-8Ws
 
