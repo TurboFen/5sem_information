@@ -22,6 +22,9 @@ https://drive.google.com/drive/folders/1VPT8r7h8aJPz9CEgPzCW4v7d1TRTyxCK
 ССылка на лабы ЗПиД
 https://drive.google.com/drive/folders/1jKGBjPyEnu0U7ar1l1GfIS3Nhujh-8Ws
 
+ССылка на диск с консультацией Марии Сергеевной Смольниковой
+https://drive.google.com/drive/folders/17utM3x_ASGtc26nGMjhO_nuvkf-g6au9
+
 Контакты преподавателей
 Номер Пристанского - +79039683508
 Почта философы - Sgn-42019@yandex.ru
